@@ -10,6 +10,7 @@ Adapt: Remix, transform, and build upon my work (including covers, non-commercia
 Your use of my work is subject to these mandatory conditions:
 <br>
 Non-Commercial Use Only: You may use my music for personal, non-commercial projects only. If you wish to use my music for 
+<br>
 any commercial purpose—including but not limited to monetized social media content, advertisements, games, or any business-related project—you must ask me first
 <br>
 <br>
